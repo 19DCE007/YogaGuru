@@ -16,3 +16,16 @@ Testimonials
 ![image](https://user-images.githubusercontent.com/73305306/187005001-fc6b94b2-5a49-4a19-b1d1-516a1883bf24.png)
 
 
+Yoga posos
+![image](https://user-images.githubusercontent.com/73305306/187005067-8e2b6349-4137-407e-9bab-ee983feba139.png)
+
+Yoga steps
+
+![image](https://user-images.githubusercontent.com/73305306/187005097-0317a60a-fd9d-4de0-abff-71d59d08a442.png)
+
+Yoga Benefits
+![image](https://user-images.githubusercontent.com/73305306/187005123-6fa79cfa-7dfe-4db3-aa06-da27dfb5dd33.png)
+ 
+ Yoga Demo Video 
+ 
+ ![image](https://user-images.githubusercontent.com/73305306/187005141-c91d21cb-7077-4a72-91e1-9b8448bb25df.png)
